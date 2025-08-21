@@ -15,4 +15,4 @@
 
 ## 🌐 Connect with Me
 - 📧 Email: azilianra@gmail.com  
-- 💼 LinkedIn: [linkedin.com/in/azilia-naning]([https://linkedin.com/in/azilia-naning](https://www.linkedin.com/in/azilia-naning-53a58a323?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))  
+- 💼 LinkedIn: [linkedin.com/in/azilia-naning](https://www.linkedin.com/in/azilia-naning-53a58a323?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
